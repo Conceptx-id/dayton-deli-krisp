@@ -5,7 +5,7 @@ title: Our Legal Certificates
 
 #### This Certificate is valid and met the sanitation and hygiene requirement in case of food safety violation.
 
-![CERTIFICATE OF "GOOD MANUFACTURING PRACTICES" ](skp-20-22.jpeg "CERTIFICATE OF \\\\\\"GOOD MANUFACTURING PRACTICES\\\\\\" ")
+![SKP 20-22](skp-20-22.jpeg "SKP 20-22")
 
 ### HACCP - FQIAMINISTRY OF MARINE AFFAIRS AND FISHERIES REPUBLIC OF INDONESIA
 
